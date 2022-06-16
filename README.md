@@ -5,7 +5,7 @@
 
 [verbal-abuse.to](https://home.verbal-abuse.to/)
 
-[reverbed.ninja](https://reverbed.ninja/)
+[Discord](https://discord.gg/HZae6MJ9ur)
 
 ## Contributors
 
